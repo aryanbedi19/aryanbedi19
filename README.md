@@ -7,4 +7,4 @@
 - 🛠️ Always working on side projects — SaaS tools for realtors, AI habit trackers, and client acquisition agents.
 
 ### 🔗 Let’s Connect  
-[LinkedIn](https://www.linkedin.com/in/aryan-bedi/) · [Twitter](https://x.com/aryan_bedi) · [Website](https://aryanbedi.com)
+[LinkedIn](https://www.linkedin.com/in/aryan-bedi/) · [X](https://x.com/aryan_bedi) · [Website](https://aryanbedi.com)
